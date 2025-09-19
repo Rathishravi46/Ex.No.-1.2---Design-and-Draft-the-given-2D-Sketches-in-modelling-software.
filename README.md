@@ -36,6 +36,8 @@
  ![image](https://user-images.githubusercontent.com/113594316/198233336-dd9f5c19-481b-486a-928a-99c32a732f89.png)
 
  ## OUTPUT
+ ![edm 1 2_page-0001](https://github.com/user-attachments/assets/3dc376c6-be62-447b-b5b7-6f9028270bac)
+
  
  
  ## RESULT
